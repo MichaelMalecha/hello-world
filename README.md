@@ -1,2 +1,2 @@
 # hello-world
-The first repository used in my journey to learn how to program. 
+Yo yo yo people of the Internets, I be chillin on dis page tryna figureo out how to code n shit cuz its in mad demand in the workplace. 
